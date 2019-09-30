@@ -1,0 +1,2 @@
+# Ghery
+Memberikan yang terbaik 
